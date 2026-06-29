@@ -1,4 +1,4 @@
-#  
+#  Experience piggy like never before with hidden piggy Scripts, the #1 Script. Includes auto-sell and auto-farm for unbeatable performance.
 
 
 
